@@ -5,7 +5,7 @@ In addition to the above, I will also be adding other works related to my public
 for Any suggestion to What I may improve, feel freee to reach me at the following details:
 * [twitter](https://twitter.com/BIRASAFABRICE)
 * [linkedIn](https://www.linkedin.com/in/birasa-fabrice-566104b6/)
-* [email](birasafab@gmail.com)
-* [Rpubs.com](rpubs.com/birasafab)
+* [email](https://birasafab@gmail.com)
+* [Rpubs.com](https://rpubs.com/birasafab)
 * [Youtube](https://www.youtube.com/channel/UCkaDk6yajihpk7gOZVATkag)
 * [github](github.com/birasafab)
